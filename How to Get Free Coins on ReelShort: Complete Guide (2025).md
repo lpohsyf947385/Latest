@@ -3,7 +3,7 @@
 Are you a fan of ReelShort and looking to get free coins in 2025? Whether you're new to the app or a seasoned user, we’ve got you covered with the best strategies to earn free coins without spending a dime. Read on to discover how to maximize your ReelShort experience and collect coins effortlessly.
 
 ---
-## **[👉👉Get Free Coins on TikTok](https://ti-ok.com/)**
+## **[👉👉Get Free Coins on ReelShort](https://9990.site/ReelShort)**
 ---
 
 
